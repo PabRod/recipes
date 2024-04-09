@@ -2,5 +2,6 @@
 
 1. Fry the garlic flakes in olive oil
 2. Add raw rice
-3. Add freshly pressed tomato
-4. Add fish fish fish!!!
+3. Add freshly pressed tomatos
+4. Add prawns
+5. Add fish fish fish!!!
